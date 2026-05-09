@@ -20,7 +20,7 @@
 
 ## 📫 Connect with Me
 - GitHub: [SUNNY](https://github.com/Sunny210405)  
-- LinkedIn:  
+- LinkedIn:  [Anindya Jana](https://www.linkedin.com/in/anindya-jana-66a9b9333)  
 
 ---
 ⭐️ *Fun Fact:* I love playing online games when I’m not coding !

@@ -23,4 +23,4 @@
 - LinkedIn:  
 
 ---
-⭐️ *Fun Fact:* I love playing online games when I’m not coding!
+⭐️ *Fun Fact:* I love playing online games when I’m not coding !
